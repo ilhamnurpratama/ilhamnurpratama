@@ -1,5 +1,5 @@
 # Hi, I’m Ilham Nur Pratama
-## S.T., CAPM, ITIL, SMC, SMPC, SSYB
+## S.T., CAPM, ITIL, SMC, SMPC
 I am a fulltime IT Project Manager and also system integrator enthusiast
 
  <a  href="https://www.linkedin.com/in/ilham-nur/">
